@@ -20,7 +20,6 @@ Almacenamiento en la nube
 ### Edicion  de video
 
 Editor de video en linea, mas rapido que en nuestras propias PC. 
-
 www.kapwing.com/join/WK60FL
 
 ### Cuidado con las piramides ponzi
