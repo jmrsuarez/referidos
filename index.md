@@ -24,3 +24,8 @@ Almacenamiento en la nube
 ### Cuidado con las piramides ponzi
 
 La biografia de Ponzi es muy interesante, roba a juan para pagarle a pedro es su modus operandi. 
+
+
+#Apoya el libro
+https://ko-fi.com/julsgeekpi
+
