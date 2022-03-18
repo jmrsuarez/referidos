@@ -27,5 +27,5 @@ La biografia de Ponzi es muy interesante, roba a juan para pagarle a pedro es su
 
 
 #Apoya el libro
-https://ko-fi.com/julsgeekpi
+(https://ko-fi.com/julsgeekpi)[Envia un donativo]
 
